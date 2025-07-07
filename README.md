@@ -30,4 +30,4 @@
 
 综上所述，要做好“日本AV免费”关键词排名，内容不仅要覆盖用户需求，还需保障安全、合法和良好体验。通过推荐正版资源、传授辨别技巧和隐私保护方法，打造权威且实用的内容，必能获得用户和搜索引擎的认可，实现排名突破。
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dtnnn2611/15000 ）</span>
